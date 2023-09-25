@@ -30,7 +30,7 @@ If these tests are fine, then you are the perfect candidate for Lasik Procedure.
 **Expectations from Lasik**
 When you have decided to go for Lasik, make sure you’re not feel pressured by an ophthalmologist, family, friends, or anyone else to make a decision about having surgery. You should carefully consider all the pros and cons.
 
-**The day before surgery, as per your ophthalmologist consultation you should stop using:**
+**The day before surgery, as per your ophthalmologist consultation you should stop using:**<br>
 •	Using eye creams<br>
 •	Using lotions<br>
 •	Eye Makeup<br>
