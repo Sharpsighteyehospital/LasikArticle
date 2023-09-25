@@ -9,7 +9,7 @@ In Lasik Surgery, basically the procedure helps to reshape the cornea that impro
 •	Your cornea thickness should be good and healthy to get this procedure. Generally, your eyes' overall health should be good.<br>
 •	You really need to have realistic expectations from Lasik.
 
-**Here are a few points which make you a non-suitable candidate for Lasik.**<br><br>
+**Here are a few points which make you a non-suitable candidate for Lasik.**<br>
 •	Unstable refractive error.<br>
 •	Extreme level of myopia, hyperopia, or astigmatism more than +5.0 diopter in hypermetropia & more than – 9.0 diopter myopia.<br>
 •	Dry Eyes<br>
@@ -18,7 +18,7 @@ In Lasik Surgery, basically the procedure helps to reshape the cornea that impro
 •	A cataract affecting vision<br>
 •	Pregnancy <br>
 
-Your ophthalmologist needs to talk to you on these terms and make you understand what will be the best treatment for your vision. If you’re a suitable candidate for LASIK then your ophthalmologist will take you to a few examinations. Here is a list:<br><br>
+Your ophthalmologist needs to talk to you on these terms and make you understand what will be the best treatment for your vision. If you’re a suitable candidate for LASIK then your ophthalmologist will take you to a few examinations. Here is a list:<br>
 
 •	The overall eyes health will be checked<br>
 •	Measurements of your cornea<br>
@@ -44,9 +44,9 @@ Before surgery, you really need to arrange all the transportation for the hospit
 **During Surgery**<br>
 The procedure will take less than 10 minutes. The surgery will be started by a large machine with a microscope attached to it and a computer screen. A numbing drop will be applied to your eye, your eyes will be cleaned before entering the procedure and an instrument called a lid speculum will be used to hold your eyelids open till the surgery. And, then the procedure will start.
 
-**After the Surgery:**<br>
+**After the Surgery**<br>
 After your procedure, your eye may burn, itch, and feel little irritation. You may feel certain discomfort or may feel mild pain but your doctor will suggest you a mild pain reliever that will help you to heal quickly. Your vision will be probably hazy and blurry. But you will be prohibited to touch or rub your eyes for several hours. If you rub your eyes after the surgery it may add more risk to your eyes, your flap may displace, and will require more treatment to correct it. These signs may be improved within the first few days of your surgery. You need to be in touch with your doctor until this procedure is closed.
 
-**Contact Sharp Sight Eye Hospitals:** If you’re tired of wearing Glasses? You can have this procedure to get rid of your glasses. Sharp Sight Eye Hospitals (Place) is here with all the solutions, this hospital has an experienced and highly-qualified team of eye doctors and dedicated staff who will help the patient to provide the best treatment. Our aim is to provide all the eye care solutions under one roof. The patient is not just a patient for us, we treat them as our family members. 
+**Contact Sharp Sight Eye Hospitals:** If you’re tired of wearing Glasses? You can have a LASIK procedure to get rid of your glasses. <b><a href="https://sharpsight.in/lasik-laser-eye-surgery/" target="_blank">Best Lasik hospital in East Delhi</a></b> is here, this hospital has an experienced and highly qualified team of eye doctors and dedicated staff who help the patient to give the best treatment and care. Our aim is to provide all the eye care solutions under one roof. The patient is not just a patient for us, we treat them as our family members.
 Aao Accha Dekhein!
 
