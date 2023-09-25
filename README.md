@@ -3,7 +3,7 @@ Lasik is the latest vision corrective surgery for a very delicate part of the ey
 
 In Lasik Surgery, basically the procedure helps to reshape the cornea that improves your vision.
 
-**Before going for this procedure, here are a few key points about the procedure:**
+**Before going for this procedure, here are a few key points about the procedure:**<br>
 •	LASIK is that surgery applicable to the delicate part of your eye, and it will not be reversed.
 •	Your age should be 18 years or above (which is the best time to get your LASIK procedure done where vision is more likely to stop changing).
 •	Your cornea thickness should be good and healthy to get this procedure. Generally, your eyes' overall health should be good.
